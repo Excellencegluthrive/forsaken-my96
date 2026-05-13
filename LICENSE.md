@@ -1,4 +1,4 @@
-
+Download Free forsaken Script automatic for forsaken and experience the ultimate in gameplay enhancement with auto-sell and anti-ban. Designed for gamers who demand the best, this
 
 
 
